@@ -1,1 +1,0 @@
-# fofmindedstudent.github.io
